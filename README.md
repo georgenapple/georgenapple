@@ -1,2 +1,2 @@
- ![](https://media.discordapp.net/attachments/1294372635672842262/1294373772156997693/Sin_titulo.png?ex=670ac703&is=67097583&hm=6af4acd6e2860aeee8edd3386389651ebebc35430f7eb170a56d044fe5d0bd35&=&format=webp&quality=lossless&width=422&height=422)
-  zandy, minor and gay. ![](https://media.discordapp.net/attachments/1294372635672842262/1294374114751942697/tumblr_8ffb54662a8071b922169f509a38ef81_e35a3125_75.gif?ex=670ac755&is=670975d5&hm=38535be293f9b437e7c71058d213d915f4cc825fd7079662dfb0b5712ada1269&=&width=17&height=17)
+
+  gay :3 i luv spnp n apples. ![](https://media.discordapp.net/attachments/1294372635672842262/1294374114751942697/tumblr_8ffb54662a8071b922169f509a38ef81_e35a3125_75.gif?ex=670ac755&is=670975d5&hm=38535be293f9b437e7c71058d213d915f4cc825fd7079662dfb0b5712ada1269&=&width=17&height=17)
